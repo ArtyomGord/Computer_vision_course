@@ -1,0 +1,1 @@
+### This repository is made ***only*** for educational and humorous purposes.
