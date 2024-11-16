@@ -1,1 +1,1 @@
-### This repository is made ***only*** for educational and humorous purposes.
+### This repository is made ***only*** for educational and humorous purposes. <br> We love Kanye <3
